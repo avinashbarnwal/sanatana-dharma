@@ -22,3 +22,6 @@ Kabir says that if the boat is filled with water and money comes to the house, t
 
 - beta jaaye kya hua, kaha bajaavai thaal. aavan jaavan hoy raha, jyon keedee kee naal.     
 Kabir says that on the birth of a son, you played the plate and celebrated happiness. Why this happiness? This coming and going is bound to happen, just like a queue of ants keeps on coming and going.
+
+- sahaj milai so doodh hai, maangi milai so paani. kahain kabeer vah rakt hai, jaamen ainchaataani.      
+Kabir says that that which is obtained easily is like milk, that which is obtained on demand is like water and that which is obtained forcefully by hurting someone is like blood.
