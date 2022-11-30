@@ -25,3 +25,6 @@ Kabir says that on the birth of a son, you played the plate and celebrated happi
 
 - sahaj milai so doodh hai, maangi milai so paani. kahain kabeer vah rakt hai, jaamen ainchaataani.      
 Kabir says that that which is obtained easily is like milk, that which is obtained on demand is like water and that which is obtained forcefully by hurting someone is like blood.
+
+- shabd samhaare boliye, shabd ke haath na paanv. ek shabd aushadhi kare, ek shabd kare ghaav.    
+Whatever word you take out of your mouth, take it out carefully because words do not have hands and feet. The same word becomes medicine at some places and causes wounds at some places.
