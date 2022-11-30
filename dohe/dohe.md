@@ -28,3 +28,6 @@ Kabir says that that which is obtained easily is like milk, that which is obtain
 
 - shabd samhaare boliye, shabd ke haath na paanv. ek shabd aushadhi kare, ek shabd kare ghaav.    
 Whatever word you take out of your mouth, take it out carefully because words do not have hands and feet. The same word becomes medicine at some places and causes wounds at some places.
+
+- yah tan kaancha kumbh hai, liya phirai the saath. tapaka laaga phuti gaya, kachhoo na aaya haath.      
+Kabir says – This body is like a raw earthen pot, which you carry around with you with great interest. When just one stone of Kaal hits, this earthen pot like body explodes and nothing is felt in the hand. It means to say that there is no need to be proud of this body.
