@@ -16,3 +16,6 @@ Kabir says- Speak such a word, in which there is not even an iota of ego, and th
 
 - jhootha sab sansaar hai, kooo na apana meet. raam naam ko jaani le, chalai so bhaujal jeet    
 Kabir says – this world is false and here no one is our own and no one is friend. One who knows the importance of the name of Rama, crosses the ocean of existence. Here only the name of Ram is 'Satya'.
+
+- jo jal baadhe naav mein, ghar mein baadhai daam. donon haath uleechiye, yahee sayaanon kaam    
+Kabir says that if the boat is filled with water and money comes to the house, then pull it out with both hands, that is, do charity and charity with an open heart. This is the identity of intelligent people.
