@@ -1,13 +1,14 @@
-kabir ran mein aiye ke pichhe rahe na suur    
-sai ke sanmukh rahe   
-jujhe sada hujur     
-
-
-Questions of life?
+ ### Questions of life?
 - Maan ashant hota hai usko shanti ki aur le jana.
 - Maan jatil hota hai usko saral banana.
 - Maan andhere mein hota hai usko prakash ki aur le jana.     
 
+
+### Dohe
+
+kabir ran mein aiye ke pichhe rahe na suur    
+sai ke sanmukh rahe   
+jujhe sada hujur    
 
 - पढ़ि पढ़ि के पत्थर भये, लिखि भये जुईंट। कबीर अन्तर प्रेम का लागी नेक न छींट।।     
 Kabir says that by reading and studying he became a stone and by writing he became as hard as a brick, but there was not even a drop of love in his heart, that is, what is the use of this reading and writing when he could not even know the meaning of love.
