@@ -4,7 +4,7 @@
 - Maan andhere mein hota hai usko prakash ki aur le jana.     
 
 
-## Dohe
+# Dohe
 
 ### Love
 - पढ़ि पढ़ि के पत्थर भये, लिखि भये जुईंट। कबीर अन्तर प्रेम का लागी नेक न छींट।।     
