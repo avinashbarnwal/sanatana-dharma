@@ -10,6 +10,9 @@
 - पढ़ि पढ़ि के पत्थर भये, लिखि भये जुईंट। कबीर अन्तर प्रेम का लागी नेक न छींट।।     
 Kabir says that by reading and studying he became a stone and by writing he became as hard as a brick, but there was not even a drop of love in his heart, that is, what is the use of this reading and writing when he could not even know the meaning of love.
 
+- jab main tha tab guru nahin, ab guru hain main naahin. prem galee ati saankaree, taamen do na samaahin..    
+When I had ego, I could not find a Guru and now that I have found a Guru, I do not have ego. Kabir says that the lane of love is so small and narrow that two cannot live together in it i.e. knowledge and ego cannot live together.
+
 ### Language
 - shabd ju aisa boliye, man ka aapa khoy. auran ko sheetal kare, aapan ko sukh hoy.     
 Kabir says- Speak such a word, in which there is not even an iota of ego, and the person in front of you becomes cheerful and also gives happiness to yourself.
