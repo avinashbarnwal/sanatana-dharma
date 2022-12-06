@@ -24,7 +24,7 @@ Whatever word you take out of your mouth, take it out carefully because words do
 - jibhya jin bas mein karee, tin bas kiyo jahaan. nahin to augun upaje, kahi sab sant sujaan.         
 The one who has controlled the tongue, has controlled the whole world. The one whose tongue is not under control, thousands of defects arise in his body and mind, wise people say so.
 
-### Wisdm
+### Wisdom
 - jhootha sab sansaar hai, kooo na apana meet. raam naam ko jaani le, chalai so bhaujal jeet.           
 Kabir says that this world is false and here no one is our own and no one is friend. One who knows the importance of the name of Rama, crosses the ocean of existence. Here only the name of Ram is 'Satya'.
 
@@ -58,6 +58,9 @@ Kabir says that wearing garland and applying tilak is just a change of form, it 
 - kabeer sumiran saar hai, aur sakal janjaal. aadi ant madhi sodhiya, dooja dekha kaal.    
 Kabir says that Bhajan, Kirtan of God is the essence and everything else is false. Everything about the beginning, the end and the middle has been taken into account. Except Bhajan, Kirtan, all others are entangled in the cycle of time.
 
+### Teacher
+- tan man taako deejie, jaako vishaya naahin. aapa sab hee daari ke, raakhai saahib maahin..       
+Give your body and mind to that Guru, who is away from sensuality. One who does not have the slightest sense of ego and has complete knowledge of God, that is, one who is away from worldliness and close to God.
 
 
 
