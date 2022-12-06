@@ -27,6 +27,8 @@ Kabir says that this world is false and here no one is our own and no one is fri
 
 - beta jaaye kya hua, kaha bajaavai thaal. aavan jaavan hoy raha, jyon keedee kee naal.     
 Kabir says that on the birth of a son, you played the plate and celebrated happiness. Why this happiness? This coming and going is bound to happen, just like a queue of ants keeps on coming and going.
+- karata tha to kyaun raha, ab kari kyaun pachhataay. bovai ped babool ka, aam kahaan te khaay.   
+When you used to do bad deeds and did not understand even after explaining, then why are you regretting now? When you have sown the acacia tree, then from where will you get the sweet taste of mango fruits, that is, you get the fruit according to your deeds.      
 
 
 ### Philanthropy
@@ -46,4 +48,9 @@ Kabir says – This body is like a raw earthen pot, which you carry around with 
 ### Wealth
 - bahut jatan kari keejie, sab phal jaay na saay. kabeer sanchai soom dhan, ant chor lai jaay.      
 Kabir says that the wealth accumulated is destroyed in the end. This is the speed of money, like thieves steal the money collected by a miser, that is, that money is of no use to him.
+
+### God
+- maala tilak to bhesh hai, raam bhakti kuchh aur. kahain kabeer jin pahiriya, paanchon raakhai thaur..    
+Kabir says that wearing garland and applying tilak is just a change of form, it would be called external ostentatiousness only. Ram Bhakti is something else. The one who wears the garland named Ram, he controls his senses and his whole life becomes like Ram.
+
 
