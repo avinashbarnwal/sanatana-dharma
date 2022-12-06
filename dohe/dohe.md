@@ -57,6 +57,9 @@ Kabir says that the wealth accumulated is destroyed in the end. This is the spee
 Kabir says that wearing garland and applying tilak is just a change of form, it would be called external ostentatiousness only. Ram Bhakti is something else. The one who wears the garland named Ram, he controls his senses and his whole life becomes like Ram.     
 - kabeer sumiran saar hai, aur sakal janjaal. aadi ant madhi sodhiya, dooja dekha kaal.    
 Kabir says that Bhajan, Kirtan of God is the essence and everything else is false. Everything about the beginning, the end and the middle has been taken into account. Except Bhajan, Kirtan, all others are entangled in the cycle of time.
+- oojal pahinai kaapada, paan supaaree khaay. kabeer guru kee bhakti bin, baandha jamapur jaay..    
+Wearing white clothes and eating betel nut, it is showy and useless. Saint Kabir says that without devotion to Sadguru, he goes to Yampur chained i.e. devotion to God is the real clothing of a man.
+
 
 ### Teacher
 - tan man taako deejie, jaako vishaya naahin. aapa sab hee daari ke, raakhai saahib maahin..       
