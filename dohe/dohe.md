@@ -54,6 +54,9 @@ Kabir says that the wealth accumulated is destroyed in the end. This is the spee
 
 ### God
 - maala tilak to bhesh hai, raam bhakti kuchh aur. kahain kabeer jin pahiriya, paanchon raakhai thaur..    
-Kabir says that wearing garland and applying tilak is just a change of form, it would be called external ostentatiousness only. Ram Bhakti is something else. The one who wears the garland named Ram, he controls his senses and his whole life becomes like Ram.
+Kabir says that wearing garland and applying tilak is just a change of form, it would be called external ostentatiousness only. Ram Bhakti is something else. The one who wears the garland named Ram, he controls his senses and his whole life becomes like Ram.     
+- kabeer sumiran saar hai, aur sakal janjaal. aadi ant madhi sodhiya, dooja dekha kaal.    
+
+
 
 
